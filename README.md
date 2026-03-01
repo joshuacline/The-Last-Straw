@@ -13,3 +13,6 @@
 
 # Noble gatekeepers or viciously incompetent megalomaniacs?
 - ![Alt text](/kickingtheladder.jpg "")
+- Imagine sharing your app with communities, only to be swiftly dog-piled and then disappeared, while the fat cats eat your breakfast, lunch, and dinner. Literally.
+
+

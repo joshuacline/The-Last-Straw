@@ -14,5 +14,6 @@
 # Noble gatekeepers or viciously incompetent megalomaniacs?
 - ![Alt text](/kickingtheladder.jpg "")
 - Imagine sharing your app with communities, only to be swiftly dog-piled and then disappeared, while the fat cats eat your breakfast, lunch, and dinner. Literally.
-
+- ***The company you keep says a lot. Maybe it's for the best.***
+- ![Alt text](/straightupweirdos.jpg "")
 

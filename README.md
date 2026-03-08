@@ -17,3 +17,6 @@
 - ***The company you keep says a lot. Maybe it's for the best.***
 - ![Alt text](/straightupweirdos.jpg "")
 
+# Sounding the alarm so everyone can breathe 🚨
+- ![Alt text](/antitrust.jpg "")
+- ![Alt text](/glassceiling.jpg "")

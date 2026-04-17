@@ -14,11 +14,20 @@
 # Noble gatekeepers or viciously incompetent megalomaniacs?
 - ![Alt text](/kickingtheladder.jpg "")
 - Imagine sharing your app with communities, only to be swiftly dog-piled and then disappeared, while the fat cats eat your breakfast, lunch, and dinner. Literally.
+
 - ***The company you keep says a lot. Maybe it's for the best.***
 - ![Alt text](/straightupweirdos.jpg "")
+- A beautiful day in the neighborhood? If you're legally blind.
+
+[![Youtube](https://img.youtube.com/vi/-eAdqq_3ccw/hqdefault.jpg)](https://youtu.be/-eAdqq_3ccw)
+
+[![Youtube](https://img.youtube.com/vi/6XDeXfGHXfw/hqdefault.jpg)](https://youtu.be/6XDeXfGHXfw)
 
 # Sounding the alarm so everyone can breathe 🚨
 - ![Alt text](/antitrust.jpg "")
+- See something, Say nothing.
 - ![Alt text](/glassceiling.jpg "")
 
-- youtu.be/E_bFNJlacvo
+[![Youtube](https://img.youtube.com/vi/E_bFNJlacvo/hqdefault.jpg)](https://youtu.be/E_bFNJlacvo)
+
+
